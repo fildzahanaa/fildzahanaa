@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @fildzahanaa
-- 👀 I’m interested in creative projects
 - 📫 Reach me through LinkedIn at linkedin.com/in/nahdafildzahanaa
 
 <!---
